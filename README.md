@@ -1,4 +1,4 @@
-gere les conflit maintenant banane
+C'est la meme que sur la brache 1 mais sur la 2
 Que l'odeur d'la pâte à modeler
 Maman est prof de maternelle
 C'est même la maîtresse d'à côté
