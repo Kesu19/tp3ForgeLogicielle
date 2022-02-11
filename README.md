@@ -1,4 +1,4 @@
-Rien peut m'ramener plus en arrière
+gere les conflit maintenant banane
 Que l'odeur d'la pâte à modeler
 Maman est prof de maternelle
 C'est même la maîtresse d'à côté
